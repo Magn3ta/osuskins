@@ -20,8 +20,41 @@
 ## [Kryterion](https://magn3ta.s-ul.eu/FzbUJoxH)
 <img width="1600" height="900" alt="screenshot2982" src="https://github.com/user-attachments/assets/05ca677a-0afc-462e-878d-2ccb038fd614" />
 
-## [Aristia (rafamat edit)(https://magn3ta.s-ul.eu/YJMEsNQL)
+## [Aristia (rafamat edit)](https://magn3ta.s-ul.eu/YJMEsNQL)
 <img width="1600" height="900" alt="screenshot2983" src="https://github.com/user-attachments/assets/1b6f050d-fa49-4b63-b30e-6e56df44d363" />
 
 ## [azerinoxrektygon](https://magn3ta.s-ul.eu/jsAkU2Gu)
 <img width="1600" height="900" alt="screenshot2984" src="https://github.com/user-attachments/assets/ec926c22-bac1-4972-b0b6-6274c6b8b074" />
+
+## [jp zadymiarz htei](https://magn3ta.s-ul.eu/LjyAvjrv)
+<img width="1600" height="900" alt="screenshot2986" src="https://github.com/user-attachments/assets/e71a369b-2373-41c0-aab0-ac4e00276120" />
+
+## [Mafham Mix](https://magn3ta.s-ul.eu/9I18oAGA)
+<img width="1600" height="900" alt="screenshot2987" src="https://github.com/user-attachments/assets/3f87ec20-6643-4799-99a0-ef362fe80656" />
+
+## [Rektygon](https://magn3ta.s-ul.eu/WsDYWbu4)
+<img width="1600" height="900" alt="screenshot2989" src="https://github.com/user-attachments/assets/b997966d-20d6-4b33-a5aa-e71ddf4bbc47" />
+
+## [Prawilnosc Ultimate](https://magn3ta.s-ul.eu/Df38DawJ)
+<img width="1600" height="900" alt="screenshot2990" src="https://github.com/user-attachments/assets/ab38acbd-3b63-46e7-b193-bfacceed439e" />
+
+## [Rafis with different hitsounds](https://magn3ta.s-ul.eu/BZxSbb2T)
+<img width="1600" height="900" alt="screenshot2998" src="https://github.com/user-attachments/assets/9a77df70-1406-484a-82d7-839953d11a3b" />
+
+## [Aristiahh alyaho edit](https://magn3ta.s-ul.eu/tAryHEM1)
+<img width="1600" height="900" alt="screenshot3001" src="https://github.com/user-attachments/assets/98b2db50-c084-4295-bb46-eb5ca73b3dbd" />
+
+## [rektygon editnov](https://magn3ta.s-ul.eu/EnYT1t2N)
+<img width="1600" height="900" alt="screenshot2993" src="https://github.com/user-attachments/assets/24a0be37-7bd7-47e4-b1d1-31025f668f04" />
+
+## [ael](https://magn3ta.s-ul.eu/qDwl0Nda)
+<img width="1600" height="900" alt="screenshot2994" src="https://github.com/user-attachments/assets/00adab4b-e22d-44d9-98b9-395ea18063b0" />
+
+## [tfge](https://magn3ta.s-ul.eu/7SdyvnvX)
+<img width="1600" height="900" alt="screenshot2995" src="https://github.com/user-attachments/assets/9f9ab9c9-10b2-45ee-9c65-1f0f77b88bc4" />
+
+
+
+
+
+
