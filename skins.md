@@ -4,3 +4,5 @@
 
 ## [new maliszewski skin](https://magn3ta.s-ul.eu/OCGXAONX)
 <img width="1600" height="900" alt="screenshot2976" src="https://github.com/user-attachments/assets/9a6ec18e-a7a9-4deb-8b7f-dfdd63a714ea" />
+
+## [marianek](https://magn3ta.s-ul.eu/IhwOduHV))
