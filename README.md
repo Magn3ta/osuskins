@@ -53,6 +53,10 @@
 ## [tfge](https://magn3ta.s-ul.eu/7SdyvnvX)
 <img width="1600" height="900" alt="screenshot2995" src="https://github.com/user-attachments/assets/9f9ab9c9-10b2-45ee-9c65-1f0f77b88bc4" />
 
+## [stellerinosenya](https://magn3ta.s-ul.eu/YwUyd5ph)
+<img width="1600" height="900" alt="screenshot3010" src="https://github.com/user-attachments/assets/73a920c2-ca7f-4aa3-aa86-831063adba7f" />
+
+
 
 
 
