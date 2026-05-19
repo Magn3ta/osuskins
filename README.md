@@ -56,6 +56,14 @@
 ## [stellerinosenya](https://magn3ta.s-ul.eu/YwUyd5ph)
 <img width="1600" height="900" alt="screenshot3010" src="https://github.com/user-attachments/assets/73a920c2-ca7f-4aa3-aa86-831063adba7f" />
 
+## [asdojin](https://magn3ta.s-ul.eu/3zuXSPZI)
+<img width="1600" height="900" alt="screenshot3029" src="https://github.com/user-attachments/assets/0339ee59-b365-4bdb-9f09-deb55ef5a062" />
+
+## [Aristia(Edit)Yan](https://magn3ta.s-ul.eu/LzlqFhKk)
+<img width="1600" height="900" alt="screenshot3033" src="https://github.com/user-attachments/assets/150a2202-9d88-41e6-b404-ab0011cafeaa" />
+
+
+
 
 
 
